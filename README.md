@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/BogdanAslanyan](https://github.com/BogdanAslanyan)
 
-- 📫 How to reach me **bogdanaslanyancommerical@gmail.com**
+- 📫 How to reach me **atomsenser@yandex..ru**
 
 - 📄 Know about my experiences [https://bogdanaslanyan.tiiny.site/](https://bogdanaslanyan.tiiny.site/)
 
